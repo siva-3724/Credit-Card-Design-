@@ -9,9 +9,9 @@
 🌈 Styling Options: Customize colors, shadows, and borders for uniqueness.
 
 
-Output - 1
 
-![Screenshot 2024-09-10 195439](https://github.com/user-attachments/assets/ad3c7787-3318-4a0d-9528-bdb28e271821)
+
+(https://github.com/user-attachments/assets/ad3c7787-3318-4a0d-9528-bdb28e271821)
 
 Join Us For Latest Updates 👇
 
