@@ -9,10 +9,3 @@
 🌈 Styling Options: Customize colors, shadows, and borders for uniqueness.
 
 
-
-
-(https://github.com/user-attachments/assets/ad3c7787-3318-4a0d-9528-bdb28e271821)
-
-Join Us For Latest Updates 👇
-
-GitHub - https://github.com/siva-3724 
